@@ -1,1 +1,1 @@
-# LilSkrrt
+Gimnazija Velika Gorica
